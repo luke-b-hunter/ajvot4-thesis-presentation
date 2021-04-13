@@ -51,7 +51,11 @@ Online posts form an online strategy that would first promote the point in the p
 
 # *Merchandising for Slovenian street*
 
-After the performance, the audience would be encouraged to take a promotional material made up of a badge and a t-shirt. The promotional materials are used to help promote the movement and make it more famous. The badge would use a pictogram the same way the visual uses the symbol. The t-shirt would be made up of exclamation marks 
+After the performance, the audience would be encouraged to take a promotional material made up of a badge and a t-shirt. The promotional materials are used to help promote the movement and make it more famous. The badge would use a pictogram the same way the visual uses the symbol. The t-shirt would be made up of exclamation marks on the front side and a statement on the back side that says "We (Rascals) were in Slovenian street." The badge is made up of a pictogram that you can find on the visual. 
+
+# *The Flag Raising Ceremony*
+
+The event would take place in the same street as the previous primary event and could be joined by anyone. It is rather a secondary event and from a marketing point of view, it is not as important to the movement as the primary event. The flag could be raised on any object that would serve as a flag pole. 
 
 
 
