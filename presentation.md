@@ -43,15 +43,15 @@ The performance for Slovenian street is reflecting on the problem of living and 
 
 # *Visuals for Slovenian street*
 
-The visuals are made with two styles. The first is a pictogramic style where the pictograms symbolize Slovaks in a stereotypical way. The pictograms also symbolize the same pictograms that can be found on exit signs. This whole style is inspired by pictograms of people that you can find on various street signs. The second style is a humorous collage of various people and objects that symbolize the performance. The collage style would be used mainly for promotional brochures that would promote the performance. Each visuals would use the colours of the country's flag the street is named after. In the case for Slovenian street it is red, white and blue. 
+The visuals are made with two styles. The first is a pictogramic style where the pictograms symbolize Slovaks in a stereotypical way. The pictograms also symbolize the same pictograms that can be found on exit signs. This whole style is inspired by pictograms of people that you can find on various street signs. The pictogramic style would be informative since the movement is trying to introduce itself and it's intentions to the public. The second style is a humorous collage of various people and objects that symbolize the performance. The collage style would be used mainly for promotional brochures that would promote the performance. Each visuals would use the colours of the country's flag the street is named after. In the case for Slovenian street it is red, white and blue. 
 
-# Guerilla promotion
+# *Guerilla promotion*
 
 Another guerilla promotion could be used for the promotion of the performance, where the pictogram from the visual could be used as a standalone symbol on walls that could be easily reproduced throughout the district and street. 
 
 # *Online posts*
 
-Online posts form an online strategy that would first promote the point in the platform and than explain the local problem behind it. The posts would use a formal style and a collage style to add in the humorous aspect. At the end of the performance a post promoting the flag raising ceremony would show up on the feed. A similar system would be used for Instagram where photos of the performance would be added. 
+Online posts form an online strategy that would first promote the point in the platform and than explain the local problem behind it. The posts would use a formal style and a humorous collage style to add in the frivolous aspect. The collage styled posts use a humorous poetic style of talking. At the end of the performance a post promoting the flag raising ceremony would show up on the feed. A similar system would be used for Instagram where photos of the performance would be added after the end of it.
 
 # *Merchandising for Slovenian street*
 
@@ -67,7 +67,20 @@ This performance is would take place in the same spirit as in Slovenian Street a
 
 # *Visuals for Kazakh street*
 
-The visual uses a colour combination of blue and yellow, derrived from the Kazakh flag. On the visual we can find a pictogram of a stylized Kazakh with a Kazakh hat, which oversees the sheep depicted in the style of a car. The visual uses a different dimension of the pictogram so that the visual style does not seem too monotonous. However, the dimensions and format of the title and text are preserved so that associations with the movement can be easily identified. A brochure with a collage showing a model of a sheep on wheels would be used as a supplementary visual for outdoor communication. The Brochue contains similar colors with the same texts as the main visual. The texts on the leaflet are larger in size for better readability, as the leaflet would be in a smaller scale than the visual. The visual serves as an invitation to the event and, like the previous visual for Slovexit, is intended to provoke shock in the public mind.
+The visual uses a colour combination of blue and yellow, derrived from the Kazakh flag. On the visual we can find a pictogram of a stylized Kazakh with a Kazakh hat, which oversees the sheep depicted in the style of a car. The visual uses a different dimension of the pictogram so that the visual style does not seem too monotonous. However, the dimensions and format of the title and text are preserved so that associations with the movement can be easily identified. A brochure with a collage showing a model of a sheep on wheels would be used as a supplementary visual for outdoor communication. The Brochue contains similar colors with the same texts as the main visual. The texts on the leaflet are larger in size for better readability, as the leaflet would be in a smaller scale than the visual. The visual serves as an invitation to the event and, like the previous visual for Slovenian street, is intended to provoke shock in the public mind. 
+
+# *Guerilla promotion*
+
+The same guerilla promotion could be used for Kazakh street as for Slovenian street, where the pictogram is used as a symbol reproduced on the streets. 
+
+# *Online posts*
+
+The posts use a similar style and system of color as the posts for Slovenian street, where we can see formal posts and humorous posts being used. 
+
+# 
+
+
+
 
 
 
