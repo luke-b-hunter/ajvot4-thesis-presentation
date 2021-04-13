@@ -15,12 +15,15 @@ The Friends of Beer party used a stylized beer for their logo. It is a classic u
 
 # *Balbín's Poetic Party*
 
-The party's logo is based mainly on the logo of Balbín's poetic pub which serves as a sort of headquarters for the party. The color of the logo is neutral black and this color is also used on official promotional items, such as a T-shirt worn by the party's chairman or a flag used for events on Wenceslas Square. The logo is playful and presents to the audience the local character of the party. It does not act seriously and at the same time characterizes the party as an anti-system movement. The main uniform element is a bowler hat, which appears on both the logo and the chairman's costume and was also used on their banners. The bowler hat became part of the party's identity itself. The party used collages of politicians from serious parties with provocative headlines as their billboards.
+The party's logo is based mainly on the logo of Balbín's poetic pub which serves as a sort of headquarters for the party. The color of the logo is neutral black and this color is also used on official promotional items, such as a T-shirt worn by the party's chairman or a flag used for events on Wenceslas Square. The logo is playful and presents to the audience the local character of the party. It does not act seriously and at the same time characterizes the party as an anti-system movement. The main uniform element is a bowler hat, which appears on both the logo and the chairman's costume and was also used on their banners. The bowler hat became part of the party's identity itself. The party used collages of politicians from serious parties with provocative headlines as their billboards. 
 
 # My own satirical party #
 
-I created my own party that uses the technique of shock marketing to gain attention and fame through media. The party has it's own platform made up of twelve performances for each street that is named after a world country. Ambitions of the made up party aren't to get into local politics but to reflect on local problems of Prague, such as cars parked on sidewalks, shortage of living, loud drunktards etc. The aim is to bring attention to these problems through various satirical marketing performances that will happen on the streets of Prague 10 Vrsovice. The reason why I chose this part of Prague is because it's a part of Prague I grew up in and know well and it's a place that has the most streets that bare the name after world countries. Country street names are crucial to my party because it's satirical aim is to create "Peace in the world" through these various guerilla performances happening on the streets. 
+I created my own party that uses the technique of shock marketing to gain attention and fame through media. The party has it's own platform made up of twelve performances for each street that is named after a world country. Ambitions of the made up party aren't to get into local politics but to reflect on local problems of Prague, such as cars parked on sidewalks, shortage of living, loud drunktards etc. The aim is to bring attention to these problems through various satirical marketing performances that will happen on the streets of Prague 10 Vrsovice. The reason why I chose this part of Prague is because it's a part of Prague I grew up in and know well and it's a place that has the most streets that bare the name after world countries. Country street names are crucial to my party because it's satirical aim is to create "Peace in the world" through these various guerilla performances happening on the streets. At the end of each performance would be a flag raising ceremony that would mark the end of each performance. 
 
+# *Visual style*
+
+The visual style is made up of logo, posters, brochures and other promotional materials, that are used to promote each performance of the party. 
 
 # *Logo*
 
@@ -28,12 +31,27 @@ The logo is made up of the party's name and would be in a neutral black colour s
 
 # *The Movement's Platform*
 
-Each performance in the platform is represented by a point. Each point in the official platform has a satirical problem that is accompanied with a real solution. Each point in the platform is presented as nonsense but it actually represents an actial local problem of Prague. The party's name is "Uličníci" which can be roughly translated to "Rascals". "Ulice" in Czech can also translated to "streets". The name has a double meaning in itself. The party has it's own logo and other various promotional materials such as an umbrella or a poster. The umbrella would be used for various humorous performances. The party describes itself as a satirical movement that isn't meant to be taken seriously.
+Each performance in the platform is represented by a point. Each point in the official platform has a satirical undertone that is accompanied with a real solution. What we can in the party brochure is presented as satirical nonsense but it actually reflects on real local problems of Prague. The party uses it's logo on the front side of the brochure. The brochure works as a progress bar where each performance that already took place is marked with a photo. 
 
+# *Facebook page*
 
+On the Facebook page, you can see a cover photo using the logo and a group of performers. The group of performers is used to reflect on the fact that party is a small local movement and not a big serious party. You can see the exclamation mark used as an official avatar. The Facebook page would be used as an place to promote the performance and the problem the individual performance is adressing. After the end of each performance a post would be made to mark the end of each performance.
 
+# *Performance for Slovenian street*
 
+The performance for Slovenian street is reflecting on the problem of living and it's expensive costs. It pokes fun at the name similarities between Slovenia and Slovakia. It satirizes the constant fun poking between Czechs and Slovaks and in the spirit of satire the name of the perfomance would be Slovexit. The event also parodies the constant confusion between the names of the countries of Slovenia and Slovakia. The whole event is completely carried in an ironic spirit, both in its style, dialogue and its goals. The satirical goal is to expel Slovaks from Slovinská Street so that the space for living can be freed up. The event could be played by theater actors other hired actors or other volunteers. The performance would be be accompanied with a banner that would explain the local problem the performance is reflecting on.
 
+# *Visuals for Slovenian street*
+
+The visuals are made with two styles. The first is a pictogramic style where the pictograms symbolize Slovaks in a stereotypical way. The pictograms also symbolize the same pictograms that can be found on exit signs. This whole style is inspired by pictograms of people that you can find on various street signs. The second style is a humorous collage of various people and objects that symbolize the performance. The collage style would be used mainly for promotional brochures that would promote the performance. Each visuals would use the colours of the country's flag the street is named after. In the case for Slovenian street it is red, white and blue.
+
+# *Online posts*
+
+Online posts form an online strategy that would first promote the point in the platform and than explain the local problem behind it. The posts would use a formal style and a collage style to add in the humorous aspect. At the end of the performance a post promoting the flag raising ceremony would show up on the feed. A similar system would be used for Instagram where photos of the performance would be added. 
+
+# *Merchandising for Slovenian street*
+
+After the performance, the audience would be encouraged to take a promotional material made up of a badge and a t-shirt. The promotional materials are used to help promote the movement and make it more famous. The badge would use a pictogram the same way the visual uses the symbol. The t-shirt would be made up of exclamation marks 
 
 
 
