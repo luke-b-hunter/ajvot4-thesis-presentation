@@ -43,7 +43,11 @@ The performance for Slovenian street is reflecting on the problem of living and 
 
 # *Visuals for Slovenian street*
 
-The visuals are made with two styles. The first is a pictogramic style where the pictograms symbolize Slovaks in a stereotypical way. The pictograms also symbolize the same pictograms that can be found on exit signs. This whole style is inspired by pictograms of people that you can find on various street signs. The second style is a humorous collage of various people and objects that symbolize the performance. The collage style would be used mainly for promotional brochures that would promote the performance. Each visuals would use the colours of the country's flag the street is named after. In the case for Slovenian street it is red, white and blue.
+The visuals are made with two styles. The first is a pictogramic style where the pictograms symbolize Slovaks in a stereotypical way. The pictograms also symbolize the same pictograms that can be found on exit signs. This whole style is inspired by pictograms of people that you can find on various street signs. The second style is a humorous collage of various people and objects that symbolize the performance. The collage style would be used mainly for promotional brochures that would promote the performance. Each visuals would use the colours of the country's flag the street is named after. In the case for Slovenian street it is red, white and blue. 
+
+# Guerilla promotion
+
+Another guerilla promotion could be used for the promotion of the performance, where the pictogram from the visual could be used as a standalone symbol on walls that could be easily reproduced throughout the district and street. 
 
 # *Online posts*
 
@@ -55,7 +59,14 @@ After the performance, the audience would be encouraged to take a promotional ma
 
 # *The Flag Raising Ceremony*
 
-The event would take place in the same street as the previous primary event and could be joined by anyone. It is rather a secondary event and from a marketing point of view, it is not as important to the movement as the primary event. The flag could be raised on any object that would serve as a flag pole. 
+The event would take place in the same street as the previous primary event and could be joined by anyone. It is rather a secondary event and from a marketing point of view, it is not as important to the movement as the primary event. The flag could be raised on any object that would serve as a flag pole. The flag would be made up of an exclamation point and the same pictogram that you can find on the visual and on the badge. 
+
+# *Performance for Kazakh street*
+
+This performance is would take place in the same spirit as in Slovenian Street and would again use a satirical dialogue with the public. The event would be called " A Competition for Power." This time there would be a satirical performance, where the actors would organize a special competition to choose the chief administrator of the housing units in Kazakh Street after who's name will then the streets whole name be changed. The event is inspired by the renaming of the capital of Kazakhstan, which was named after the name of the former president of that country. The competition would select one actor. This actor would play a chosen leader who would force out a sheep model out of the street that symbolizes a car. He would have a typical Kazakh hat on his head. In an authoritative tone, the actor would then urge the sheep to be taken out of the street and the street renamed after the his name. The consequence of such an intervention will be the relocation of residents and with it, the disappearance of cars from the street. This event aims to draw attention to the issue of illegal parking in the streets of Vršovice. This is a satirical exaggeration which only wants to draw attention to the issue of illegal parking in the Prague district. 
+
+
+
 
 
 
