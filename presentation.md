@@ -87,7 +87,7 @@ The flag for Kazakh street could be raised on a pole in a street park. The stree
 
 # *Visuals for later performances*
 
-
+The same system for Slovenian and Kazakh street would be used for Armenian and Turkmen streets. An event called Vardavar would take place for Armenian Street, which is derrived from a traditional Armenian festival where people pour buckets of water on each others heads. Actors would pour buckets of water on other performers who represent drunktards and scare them off the street. The aim of the event is to expel the disturbers so that the inhabitants can sleep in peace at night. The visuals would be drawn in the colors of the Armenian flag. Since these performances would take place after a certain period of time from the first two events, the movement would reach higher media awareness and so the visuals would be simplified to one big exclamation mark. The color is red-blue-orange. Similarly, the exclamation symbol would be used on a poster for Turkmen street in the colors of the Turkmen flag which are red white and green. For Turkmen street, a puppet theater could be created based on the topic of liberating the street from autocratic apartment owners. The brochures would contain a collage just like the previous ones, but they would no longer be using an informational style for the reason of deliberate stylization. On the contrary, the logo of the movement would be significant. this is underlined by the fact that the public will already know the movement better, and therefore can afford to use easier communication in their visuals.
 
 
 
