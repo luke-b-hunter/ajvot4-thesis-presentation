@@ -77,7 +77,15 @@ The same guerilla promotion could be used for Kazakh street as for Slovenian str
 
 The posts use a similar style and system of color as the posts for Slovenian street, where we can see formal posts and humorous posts being used. 
 
-# 
+# *Merchandising for Kazakh street*
+
+Materials for Kazakh street are created in the same style as for Slovenian street. They would be distributed to participants directly at the end of the performance. Participants would then promote the event through t-shirts with the movement's logo on the back and the words "We were in Kazakh street" on the back side. Promotional items could also be distributed during the event. 
+
+# *The Flag Raising Ceremony*
+
+The flag for Kazakh street could be raised on a pole in a street park. The street has enough space to organize such event. The flag would be based on the colors of the poster,  blue and yellow. A stylized Kazakh pictogram with the sheep would appear on the flag's surface with a yellow exclamation mark. 
+
+# *Visuals for later performances*
 
 
 
