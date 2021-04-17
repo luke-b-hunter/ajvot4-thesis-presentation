@@ -3,7 +3,7 @@
 
 For my thesis project I decided to create a visual style for my own made up frivolous political party. Political satire has it’s own history, that hasn’t been examined properly and because of it’s small effectiveness amd influence in politics, it has mostly remained forgotten in our society. And so a majority of people can barely remember any frivolous parties, despite there being already a few throughout political history. There is a tradition of humorouss way of seeing life, that is deeply engraved in Czech mentality, starting with the Czech writer Jaroslav Hasek and so it makes sense to continue with that tradition in my thesis project.Let's take a look at other satirical parties in Czech Republic and analyze their logos.
 
-# Brief Analysis of Czech Satirical Partie's logos: 
+# Brief Analysis of Czech Satirical Party's logos: 
 
 # *The Party of Moderate Progress Within the Bounds of the Law* 
 
